@@ -1,4 +1,4 @@
-# Hi, I am Mohammad (available for a remote job) 👋
+# Hi, I am Mohammad (Available for a remote job) 👋
 
 
 
